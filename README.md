@@ -1,1 +1,1 @@
-# kokopumpkin.github.io/
+# skz.github.io/
