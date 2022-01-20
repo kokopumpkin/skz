@@ -1,1 +1,1 @@
-# skz.github.io/
+# skz.github.io
